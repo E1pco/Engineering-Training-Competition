@@ -1,1 +1,0 @@
-# Engineering-Training-Competition
